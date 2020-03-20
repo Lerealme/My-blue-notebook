@@ -1,0 +1,2 @@
+# My-blue-notebook
+Literally
